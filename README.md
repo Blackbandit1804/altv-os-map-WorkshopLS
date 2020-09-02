@@ -21,7 +21,7 @@ You can find an Imgur Album with multiple pictures here:
 https://imgur.com/gallery/nWWdhmz
 
 ![](https://i.imgur.com/Lbq1Or2.jpeg)
-A blocked metro tunnel.
+General Look over Workshop
 
 ![](https://i.imgur.com/XhvGHLv.png)
-A blocked metro station entry.
+Detailed look of Garage
